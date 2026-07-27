@@ -10,3 +10,6 @@ I was .....
 i will focus on
 
 
+also from now on ill make the screenshots into a PDF so Its easier to view my work 
+
+
